@@ -1,4 +1,0 @@
-# jack
-# jack
-# jack
-# neusoft
